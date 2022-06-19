@@ -1,1 +1,1 @@
-lolnet27 senko_nya stoyack
+senko_nya stoyack
