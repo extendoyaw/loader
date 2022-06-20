@@ -1,1 +1,1 @@
-senko_nya sosogood lolnet27 foty t.me/bat_crackslavaukraini! stoyack 123
+senko_nya sosogood foty t.me/bat_crackslavaukraini! stoyack 123
